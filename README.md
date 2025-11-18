@@ -1,4 +1,4 @@
-Hi 👋 My name is Tandol Supawatanakul
+Hi 👋 My name is Tanadol Supawatanakul
 =====================================
 
 III Year of Computer Science Student at Silpakorn University, Faculty of Science
